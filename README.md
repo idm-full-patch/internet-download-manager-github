@@ -1,4 +1,4 @@
-## 🚀 **internet download manager (IDM) 6.42.39 Crack latest
+## 🚀 internet download manager (IDM) 6.42.39 Crack latest
 
 
 ### **Internet Download Manager (IDM) - Complete Overview**  
